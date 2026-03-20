@@ -10,7 +10,7 @@
 <p align="center"> $\small\color{rgba(209, 62, 72)}{\textsf{๋ ࣭ ⭑๋ ࣭ ⭑}}$<br/></p>
 <p align=center>  </p>
 <p align="left"> $\small\color{rgba(209, 62, 72)}{\textsf{ꉂ`𖦹.ƒαη∂σмѕ:}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ʟᴇᴀɢᴜᴇ ~ ʜꜱʀ ~ ɢᴇɴꜱʜɪɴ ~ ᴠᴏᴄᴀʟᴏɪᴅ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴢᴢᴢ ~ ᴜᴍᴀᴍᴜꜱᴜᴍᴇ ~ ᴇɴᴀ ~ ʜɴᴋ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ '21 ᴅᴀɴɢᴀɴ ꜱᴜʀᴠɪᴠᴏʀ ~ ᴄʟᴀꜱꜱ ᴏꜰ '09 ᴍᴀᴋᴇꜱ ᴍᴇ ɢɪɢɢʟᴇ}}$<br/> 
-<p align="right"> $\small\color{rgba(209, 62, 72)}{\textsf{ꉂ`𖦹.мυℓтιѕнιρρєя!!}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ꜰᴀᴠᴇꜱ ᴀʀᴇ: ꜱᴇᴛᴛᴘʜᴇʟ ~ ʀʜᴀᴀʏɴ/ᴋᴀʏɴᴇᴢ/ᴋᴀʏᴏɴᴇ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴊʜɪɴʜᴡᴇɪ/ᴊʜɪɴᴘʏᴋᴇ ~ ᴀʀɢᴇɴᴛʜɪʟʟ ~ ᴡʀɪᴏʟᴇᴛᴛᴇ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴋɴɪɢʜᴛʟɪɢʜᴛ/ꜰᴀᴇʟɪɢʜᴛ ~ ɴᴇᴇᴋᴏʟᴇᴇ ~ ᴛ4ᴛ ᴀɢᴇɴᴅᴀ}}$<br/> 
+<p align="right"> $\small\color{rgba(209, 62, 72)}{\textsf{ꉂ`𖦹.мυℓтιѕнιρρєя!!}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ꜰᴀᴠᴇꜱ ᴀʀᴇ: ꜱᴇᴛᴛᴘʜᴇʟ ~ ʀʜᴀᴀʏɴ/ᴋᴀʏɴᴇᴢ/ᴋᴀʏᴏɴᴇ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴊʜɪɴʜᴡᴇɪ/ᴊʜɪɴᴘʏᴋᴇ ~ ᴀʀɢᴇɴᴛʜɪʟʟ ~ ᴡʀɪᴏʟᴇᴛᴛᴇ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴋɴɪɢʜᴛʟɪɢʜᴛ ~ ɴᴇᴇᴋᴏʟᴇᴇ ~ ᴛ4ᴛ ᴀɢᴇɴᴅᴀ}}$<br/> 
 <p align="left"> $\small\color{rgba(209, 62, 72)}{\textsf{ꉂ`𖦹.ʍʊֆɨƈ!!! }}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴍᴀᴄʜɪɴᴇ ɢɪʀʟ ~ ᴜᴛꜱᴜ-ᴘ ~ ɢᴏʀɪʟʟᴀᴢ ~ ᴀᴅᴏ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ꜰᴇᴍᴛᴀɴʏʟ ~ ʀ-906 ~ ᴊᴀᴄᴋ ꜱᴛᴀᴜʙᴇʀ ~ 385 ~ ᴍɪᴅᴏʀɪ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴘᴏᴘᴘʏ ~ ᴋɪᴋᴜᴏ ~ ɴɪʀᴠᴀɴᴀ ~ ɴᴀɴᴀꜱʜɪ ʜᴀᴄʜɪʏᴀ ~ ++ ɪᴍ ᴀʟᴡᴀʏꜱ ᴀꜰᴛᴇʀ ᴍᴏʀᴇ ʀᴇᴄꜱ!!}}$<br/> 
 <p align="center"> $\small\color{rgba(209, 62, 72)}{\textsf{๋ ࣭ ⭑๋ ࣭ ⭑}}$<br/></p>
 <p> </p>
