@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=lunicrous&label=heyy+snooper+<3&color=EB533F) 
 
-<p align="center"> $\small\color{rgba(209, 62, 72)}{\textsf{ꉂ`𖦹.нєℓℓσ нєℓℓσ!!}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ʟᴜɴɪ/ʟᴜɴɪᴄʀᴏᴜꜱ/ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ᴡᴀɴᴛ - ʜᴇ/ʜɪᴍ ʙᴜᴛ ɪᴅᴍ ʜᴇ/ᴛʜᴇʏ - '07, ᴀᴜꜱꜱɪᴇ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴛᴡᴛ ᴀᴅᴅɪᴄᴛ. ꜱᴘɪʀɪᴛᴜᴀʟʟʏ ᴜɴᴇᴍᴘʟᴏʏᴇᴅ, ɪꜰ ɪᴍ ᴏɴʟɪɴᴇ ᴛʜᴇʀᴇ'ꜱ ᴘʀᴏʙᴀʙʟʏ ᴜɴɪ ᴡᴏʀᴋ ɪᴍ ᴘʀᴏᴄʀᴀꜱᴛɪɴᴀᴛɪɴɢ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ɪᴅᴋ ʜᴏᴡ ᴛʜɪꜱ ʟᴏᴏᴋꜱ ᴏɴ ᴍᴏʙɪʟᴇ ꜱᴏʀʀʏ, ɪᴍ ᴄʟᴜᴍꜱʏ ᴀꜱ ᴡɪᴛʜ ᴄᴏᴅɪɴɢ... ɪɴᴛᴇʀᴇꜱᴛꜱ, ʙʏɪ/ᴅɴɪ, ᴡʜᴀᴛᴇᴠᴇʀꜱ ʙᴇʟᴏᴡ ˋ°•*⁀➷}}$<br/> 
+<p align="center"> $\small\color{rgba(209, 62, 72)}{\textsf{ꉂ`𖦹.нєℓℓσ нєℓℓσ!!}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ʟᴜɴɪ/ʟᴜɴɪᴄʀᴏᴜꜱ/ᴡʜᴀᴛᴇᴠᴇʀ - ʜᴇ/ʜɪᴍ ʙᴜᴛ ɪᴅᴍ ʜᴇ/ᴛʜᴇʏ - '07, ᴀᴜꜱꜱɪᴇ - 9ᴡ1, ɪɴxᴘ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ᴛᴡᴛ ᴀᴅᴅɪᴄᴛ. ꜱᴘɪʀɪᴛᴜᴀʟʟʏ ᴜɴᴇᴍᴘʟᴏʏᴇᴅ, ɪꜰ ɪᴍ ᴏɴʟɪɴᴇ ᴛʜᴇʀᴇ'ꜱ ᴘʀᴏʙᴀʙʟʏ ᴜɴɪ ᴡᴏʀᴋ ɪᴍ ᴘʀᴏᴄʀᴀꜱᴛɪɴᴀᴛɪɴɢ}}$<br/> $\small\color{rgba(209, 62, 72)}{\textsf{ɪᴅᴋ ʜᴏᴡ ᴛʜɪꜱ ʟᴏᴏᴋꜱ ᴏɴ ᴍᴏʙɪʟᴇ ꜱᴏʀʀʏ, ɪᴍ ᴄʟᴜᴍꜱʏ ᴀꜱ ᴡɪᴛʜ ᴄᴏᴅɪɴɢ... ɪɴᴛᴇʀᴇꜱᴛꜱ, ʙʏɪ/ᴅɴɪ, ᴡʜᴀᴛᴇᴠᴇʀꜱ ʙᴇʟᴏᴡ ˋ°•*⁀➷}}$<br/> 
   <p align="center"> $\small\color{rgba(209, 62, 72)}{\textsf{๋ ࣭ ⭑๋ ࣭ ⭑}}$<br/></p>
   <p align="center">
   <img src="https://64.media.tumblr.com/7a7235ae67f79d93a0d6e9404473f840/tumblr_p1adwymznQ1qfy5yoo3_r1_540.gifv" />
